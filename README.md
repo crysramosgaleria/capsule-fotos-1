@@ -1,0 +1,1 @@
+# capsule-fotos-1
